@@ -12,6 +12,7 @@ https://github.com/001026-ai
 WZM：https://github.com/wzm-Epoch
 
 https://github.com/lu-xiao-t23
+HJQ:https://github.com/dashboard
 
 ---------------------------------------------
 各位部员：
